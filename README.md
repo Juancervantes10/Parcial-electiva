@@ -1,0 +1,3 @@
+# Parcial-electiva
+Juan jose Cervantes Sanchez ***Juancervantes10*** https://github.com/Juancervantes10
+link de la diapositiva donde esta la historia usuario en google drive: https://drive.google.com/drive/folders/1PVMgMgeHOgRJYF7jWdgZuYs722xAN1MA?usp=sharing
